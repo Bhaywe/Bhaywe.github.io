@@ -1,2 +1,0 @@
-# Bhaywe.github.io
-Portfolio
